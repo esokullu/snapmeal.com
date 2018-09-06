@@ -1,1 +1,0 @@
-# snapmeal.com
